@@ -1,1 +1,1 @@
-# mundarijaa
+# Amaliy-ishlar
